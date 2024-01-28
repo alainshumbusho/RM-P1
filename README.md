@@ -1,4 +1,20 @@
 # Role Models
+# IT ISHIMWE GAD 
+
+
+| DAYS  | BREAKFAST | BREAKFAST |
+| ------------- | ------------- | ------------- |
+| MONDAY  | BREAD (BLUEBAND)  | Milk Tea |
+| TUESDAY  | BREAD (BLUEBAND) + EGG | Poridge |
+| WEDNESDAY  | OMOLETTE  | Milk Tea |
+| THURSDAY  | BREAD (BLUEBAND) + EGG | Poridge |
+| FRIDAY  | BREAD (BLUEBAND)/ AMANDAZI + BANANA  | Milk Tea |
+
+| Needs  | Cost | 
+| ------------- | ------------- |
+| **AMAVUTA**  | *2K*  |
+| **CHURCH TICKET**  | *3K*  |
+| **TOTAL**  | *5K*  |
 
 
 Please note: The order in which the names appear has no other significance. Typos and Raw Content are also allowed in such circumstances.
