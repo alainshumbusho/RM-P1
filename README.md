@@ -379,11 +379,11 @@ Famille Mutangana, the entire family
 
 Aline Mutangana and Family
 
-Pascasie Mutangana and Family, plus all relatives not mentioned
+Pascasie Mutangana and Family, plus all relatives 
 
 General Nzabamwita Joseph and Family
 
-Gen. Mubarakh Muganga and Family
+Former Soldier Mubarakh Muganga and Family
 
 Minister of Defence, Hon. Marizamunda Juvenal.
 
