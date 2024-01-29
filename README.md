@@ -143,6 +143,8 @@ Hon. Paula Ingabire and Family
 
 Dr. Diane Karusisi and Family
 
+Dr. Clet Niyikiza
+
 Dr. Divine Rusa
 
 Dr. Melissa Igihozo
@@ -755,6 +757,12 @@ L.Officer Sam Byaruhanga
 
 Officer Alex Ruzindana
 
+Late Alexia Mupende
+
+Dr. Gasakure Emmanuel
+
+
+
 Staged Car Accidents
 
 Late General Dan Gapfizi
@@ -774,7 +782,7 @@ Paul Kagame
 
 Ange Ingabire Kagame
 
-Alexia Mupende
+
 
 Sanday Kabarebe (5 Months of drugs (Alcohol, etc) detox)
 Patrick Nsenga Bucyana (Eight months in prison for supporting the criminal's stupidity)
