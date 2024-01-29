@@ -761,7 +761,9 @@ Late Alexia Mupende
 
 Dr. Gasakure Emmanuel
 
+Sanday Kabarebe 
 
+Patrick Nsenga Bucyana 
 
 Staged Car Accidents
 
@@ -782,8 +784,7 @@ Terrorist and Dictator Paul Kagame
 
 Ange Ndengeyingoma Kagame
 
-Sanday Kabarebe 
-Patrick Nsenga Bucyana 
+
 
 <b> Umutoni Sandra Kagame Paul (Rwandan - Canadian) </b>
 
