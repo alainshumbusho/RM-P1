@@ -741,11 +741,11 @@ Late Officer William Bagire
 
 Antoine Kambanda
 
-Late Officer Wilson Rutayisire
+L.Officer Wilson Rutayisire
 
 Mario Grech, Maltese prelate
 
-Late Officer Sam Byaruhanga 
+L.Officer Sam Byaruhanga 
 
 Officer Alex Ruzindana
 
@@ -759,11 +759,8 @@ Late Officer Viateur Mugabe
 
 Late Officer PINA
 
-Aloys , Survived the same staged car accident by the grace of God and is still under medical treatment. Some leaders refused to disburse the funds the court approved or let him go outside the country for advanced medical treatment.
+So-called COVID-19 questionable deaths under the order of a wanted criminal and former military officer in Africa, Several (The list is long).
 
-So-called COVID-19 questionable deaths under the order of a wanted criminal and former military officer in Africa
-
-Several (The list is long).
 
 # Publius Ovidius Naso: We can learn even from our enemies.
 
