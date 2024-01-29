@@ -1,7 +1,7 @@
 # Role Models P1
  
 
-<b> Please note: The order in which the names appear has no other significance. </b> Typos and Raw Content are also allowed in such circumstances.
+<b> Please note: The order in which the names appear has no other significance. </b> 
 
 Current U.S. President Joe Biden and all Former United States Presidents.
 
