@@ -173,9 +173,9 @@ Dr. Solange Akiba and Family
 
 Dr. Yvonne Kayiteshonga and Family
 
-Iribagiza Redempta
+Redempta Iribagiza
 
-Majyambere Emmanuel
+Emmanuel Majyambere
 
 Patience Mutesi Gatera and Family
 
