@@ -627,11 +627,11 @@ Dr. Emile Rwamasirabo and Family
 
 Eugene-Richard Gasana and Family
 
-Late Lt General Jacques Musemakweli
-
-Late Col William Bagire
+Late Admiral Jacques Musemakweli
 
 Thabita Gwiza and Family
+
+Late General William Bagire
 
 Martine Umubyeyi and Gen. Richard Rutatina
 
