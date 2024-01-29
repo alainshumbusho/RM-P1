@@ -778,14 +778,12 @@ So-called COVID-19 questionable deaths under the order of a wanted criminal and 
 
 <b>Publius Ovidius Naso: We can learn even from our enemies.</b>
 
-Paul Kagame
+Terrorist and Dictator Paul Kagame
 
-Ange Ingabire Kagame
+Ange Ndengeyingoma Kagame
 
-
-
-Sanday Kabarebe (5 Months of drugs (Alcohol, etc) detox)
-Patrick Nsenga Bucyana (Eight months in prison for supporting the criminal's stupidity)
+Sanday Kabarebe 
+Patrick Nsenga Bucyana 
 
 <b> Umutoni Sandra Kagame Paul (Rwandan - Canadian) </b>
 
