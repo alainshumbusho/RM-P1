@@ -195,7 +195,7 @@ Carmel Ganza
 
 Amani Olivier 
 
-General Juvenal Marizamunda Son 
+General Juvenal Marizamunda 
 
 Dr. Sabin NSANZIMANA and Family
 
