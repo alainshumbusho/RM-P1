@@ -213,9 +213,9 @@ Pastor Dr. Antoine Rutayisire
 
 Rev Kije Mugisha Rwamasirabo & Family
 
-Chantal Uwanziga, Family and Friends
+Chantal Uwanziga and Family 
 
-Cossy Mbabazi, Family and Friends
+Cossy Mbabazi and Family
 
 Rosemary Mbabazi and Family
 
@@ -223,7 +223,7 @@ Dr. Diane Gashumba and Family
 
 Portia Karegeya
 
-Fidèle Ndayisaba
+Fidèle Ndayisaba and Family
 
 Jack Kayonga
 
@@ -247,9 +247,9 @@ Bishop John Rucyahana and Family
 
 Nelly Mukazayire and Family
 
-Clare Uwineza
+Clare Uwineza and Family
 
-Fanfan Rwanyindo
+Fanfan Rwanyindo and Family
 
 Jean Michel Habineza
 
@@ -335,9 +335,9 @@ Hon. Dr. Vincent Biruta and Family
 
 Cyrille Ndengeyingoma (Children: All )
 
-Jules Ibingira
+Jules Ibingira and Siblings
 
-Edmond Biruta
+Edmond Biruta and Siblings
 
 Chris Kagabo and Family
 
@@ -357,31 +357,31 @@ Hon. Makuza Bernard and Family
 
 Hon. Oda Gasinzigwa and Family
 
-Amos Kamugisha and Family
+Admiral Amos Kamugisha and Family
 
-Daniella Kamugisha
+Daniella Kamugisha and Siblings
 
 Hon. Ines Mpambara and Family
 
 Hon. Jeanne D'Arc Gakuba and Family
 
-General Patrick Nyamvumba and Family
+Admiral Patrick Nyamvumba and Family
 
 General Teddy Ruyenzi and Family
 
 General Lynder Nkuranga and Family
 
-General Jean Bosco Kazura and Family
+Admiral Jean Bosco Kazura and Family
 
-General Jean-Jacques Mupenzi and Family
+Admiral Jean-Jacques Mupenzi and Family
 
 Famille Mutangana, the entire family
 
 Aline Mutangana and Family
 
-Pascasie Mutangana and Family, plus all relatives 
+Pascasie Mutangana and Family 
 
-General Nzabamwita Joseph and Family
+Admiral Nzabamwita Joseph and Family
 
 Former Soldier Mubarakh Muganga and Family
 
@@ -501,13 +501,13 @@ Faith Lwakabamba
 
 Natasha Muhoza Businjye
 
-Miss Grace Ingabire
-
 Miss Meghan Nimwiza
 
 Miss Colombe Akiwacu
 
 Miss Kundwa Doriane
+
+Miss Grace Ingabire
 
 Miss Muheto Divine
 
@@ -544,6 +544,8 @@ Stella Umutoni
 Ingrid Karangwayire and Family
 
 Linda Umutoni
+
+Claudette Rubangura
 
 Leila Rwagasana
 
