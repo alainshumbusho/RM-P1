@@ -51,7 +51,7 @@ Anaya Abe N
 Amalia Agwize N
 
 
-Hon. Minister Sandrine Umutoni is the Minister of State for Youth in Rwanda and co-chair of YouthConnekt Africa. She has done fantastic work for the past several years, leading the Imbuto Foundation as the director general with remarkable results. She continues to do a tremendous job at the Ministry of Youth, which Rwanda and the whole world will benefit from.
+Hon. Minister Sandrine Umutoni is the Minister of State for Youth and Arts in Rwanda-Africa and co-chair of YouthConnekt Africa. She has done fantastic work for the past several years, leading the Imbuto Foundation as the Director General with remarkable results. She continues to do a tremendous job at the Ministry of Youth and Arts, which Rwanda and the world will benefit from.
 
 Bill Clinton
 
