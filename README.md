@@ -767,7 +767,7 @@ So-called COVID-19 questionable deaths under the order of a wanted criminal and 
 
 Several (The list is long).
 
-Publius Ovidius Naso: We can learn even from our enemies.
+# Publius Ovidius Naso: We can learn even from our enemies.
 
 H.E Paul Kagame for stopping the 1994 Genocide against the Tutsi in Rwanda - Africa. He always wonder how he did it.
 
@@ -778,28 +778,28 @@ Alexia Mupende
 Sanday Kabarebe (5 Months of drugs (Alcohol, etc) detox)
 Patrick Nsenga Bucyana (Eight months in prison for supporting the criminal's stupidity)
 
+<b> Umutoni Sandra Kagame Paul </b>
+
 Eric U. Cyuma
-Hirwa Nyamuhenda Viviane
+Hirwa  Viviane
 
 Jacques Nyilinkindi
 Tessy Rusagara
-Ingabire Angel Angel
-Emmy Makeh 2
+Ingabire Ange
+Emmy Makeh 
 
 Clement Mugisha
 Gatera Egide and Family
-Mugisha Sano Erica
 Olivier Nizeyima and Family
 
-Fazil Harerimana (Hahah)
+Fazil Harerimana 
 Delmy Fazil
-Dodos Vuningos
 Vuningoma Dieudonne
 
 Former Soldier Charles Rwandamura
 Former S.A Embassy Employee Eric Kayiranga
-Bishop Charles Mudakikwa
-Bishop Pierre Kaberuka
+Charles Mudakikwa
+Pierre Kaberuka
 
 Francis Habumugisha
 Kayinamura Samuel
