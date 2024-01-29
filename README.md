@@ -137,6 +137,10 @@ Louise Mushikiwabo and Family
 
 Dr. Agnes Kalibata and Family
 
+Rt. Hon. Edouard Ngirente, Prime Minister of Rwanda
+
+Hon. Dr. Vincent Biruta and Family
+
 Dr. Charles Murigande and Family
 
 Hon. Paula Ingabire and Family
@@ -287,13 +291,13 @@ TESI, Paris - France.
 
 Sonia Mugabo and Diego Twahirwa
 
-Officer Olivier Mutabazi and Parents, USAFA
+Officer Olivier Mutabazi 
 
-Officer John Mugabe and Parents, West Point, USMA
+Officer John Mugabe 
 
 David Nsengiyumva and Familly
 
-Park Udahemuka and Parents
+Officer Park Udahemuka 
 
 Teddy Mugabo and Family
 
@@ -331,9 +335,7 @@ General Frank Rusagara and Family
 
 Ms Mary Baine
 
-Rt. Hon. Edouard Ngirente, Prime Minister of Rwanda
 
-Hon. Dr. Vincent Biruta and Family
 
 Cyrille Ndengeyingoma (Children: All )
 
