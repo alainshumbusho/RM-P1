@@ -399,29 +399,31 @@ Pastor Liliose K. Tayi and Family
 
 Pastor Julienne Kabanda and Family
 
-General James Kabarebe and Family 
+Admiral James Kabarebe and Family 
 
-General Fred Ibingira and Family
+Admiral Fred Ibingira and Family
 
-General Charles Kayonga and Family
+Admiral Charles Kayonga and Family
 
-General Frank Mushyo Kamanzi and Family
+Admiral Frank Mushyo Kamanzi and Family
 
-General Martin Nzaramba and Family
+Admiral Martin Nzaramba and Family
 
-General Eric Murokore and Family
+Admiral Eric Murokore and Family
 
-General Augustin Turagara and Family
+Admiral Augustin Turagara and Family
 
-General Charles Karamba and Family
+Admiral Charles Karamba and Family
 
-General Albert Murasira and Family
+Admiral Albert Murasira and Family
 
-General Chris Murari and Family
+Admiral Chris Murari and Family
 
-General Didace Ndahiro and Family
+Admiral Didace Ndahiro and Family
 
-General Emmanuel Ndahiro
+Admiral Emmanuel Ndahiro
+
+Admiral Ceasar Kayizari
 
 Maj Gen Aloys Muganga, to further studies abroad in 2 disciplines while holding a diplomatic position.
 
@@ -492,6 +494,8 @@ Amb Hategeka Emmanuel and Family
 Ambassador Prospher Higiro and Family
 
 Ruth Angella M. Isimbi
+
+Rwanda Broadcasting Agency (RBA) Team
 
 Faith Lwakabamba
 
