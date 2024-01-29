@@ -161,7 +161,7 @@ High Commissioner Eng. Jean de Dieu Uwihanganye and Family
 
 Sorayah Hakuziyaremye and Family
 
-Anne Rwigara
+Anne Rwigara, May she rest in peace
 
 Shima Diane Rwigara
 
