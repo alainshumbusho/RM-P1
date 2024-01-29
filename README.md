@@ -455,8 +455,6 @@ Robert Kayinamura and Family
 
 Vitar Karangwa
 
-Rosine Ingabire
-
 Gloria Ntabana
 
 Meilleur Murindabigwi and Family
@@ -527,9 +525,9 @@ Malaika Uwamahoro and Family
 
 Pamella Mudakikwa & Family
 
-Deborah Mudakikwa (Forgiven)
+Deborah Mudakikwa 
 
-Bishop Claude Djessa and Family (Forgiven)
+Bishop Claude Djessa and Family 
 
 Gloria Hategeka and Family
 
