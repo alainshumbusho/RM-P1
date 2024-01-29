@@ -768,7 +768,7 @@ Late Officer PINA
 So-called COVID-19 questionable deaths under the order of a wanted criminal and former military officer in Africa, Several (The list is long).
 
 
-# Publius Ovidius Naso: We can learn even from our enemies.
+<b>Publius Ovidius Naso: We can learn even from our enemies.</b>
 
 Paul Kagame
 
