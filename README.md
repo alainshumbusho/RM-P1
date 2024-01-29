@@ -281,7 +281,7 @@ Protais Musoni and Family
 
 Nathalie Munyampenda and Family
 
-TESI, Paris - France. X Jacques Kabale
+TESI, Paris - France.
 
 Sonia Mugabo and Diego Twahirwa
 
