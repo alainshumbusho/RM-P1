@@ -137,7 +137,7 @@ Louise Mushikiwabo and Family
 
 Dr. Agnes Kalibata and Family
 
-Jacqueline Muhongerwa and Family
+Dr. Charles Murigande and Family
 
 Hon. Paula Ingabire and Family
 
