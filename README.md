@@ -461,7 +461,7 @@ Meilleur Murindabigwi and Family
 
 Philibert Girinema
 
-Samuel Baker Byansi and Family
+Samuel B. Baker and Family
 
 Cyprien Niyomwungeri and Family
 
@@ -707,7 +707,7 @@ Paul Rusesabagina and Family (Another Medal and a healthy retirement package)
 
 Carine Kanimba and Anaïse Kanimba
 
-Late Lt Col Patrick Karegeya
+Late Admiral Patrick Karegeya
 
 Late Kalisa Mupende
 
