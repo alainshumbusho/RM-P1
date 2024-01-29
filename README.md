@@ -367,9 +367,9 @@ Hon. Jeanne D'Arc Gakuba and Family
 
 General Patrick Nyamvumba and Family
 
-ACP Teddy Ruyenzi and Family
+General Teddy Ruyenzi and Family
 
-ACP Lynder Nkuranga and Family
+General Lynder Nkuranga and Family
 
 General Jean Bosco Kazura and Family
 
@@ -514,6 +514,8 @@ Miss Iradukunda Liliane
 Miss Aurore and Family
 
 Miss Grace Bahati and Family
+
+Miss Aurore Kayibanda and Family
 
 Malaika Uwamahoro and Family
 
