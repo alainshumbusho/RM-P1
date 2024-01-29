@@ -43,7 +43,7 @@ Ambassador William Popp
 
 His Parents, both biological and Spiritual.
 
-Her Excellency The First Lady of Rwanda, Mrs Jeannette Kagame, for her excellent work empowering the Rwandan youth.
+Her Excellency The First Lady of Rwanda, Mrs Jeannette Kagame, for her excellent work empowering the Rwandan community and the youth.
 
 
 Anaya Abe N
