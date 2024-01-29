@@ -685,8 +685,6 @@ Kazoza Justin and Family
 
 Soldier Innocent Kayihura
 
-Sandra Umutoni
-
 Bamporiki Edouard anf Family
 
 Dr. Pierre Damien Habumuremyi and Family, Former Prime Minister of Rwanda
