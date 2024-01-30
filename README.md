@@ -147,6 +147,8 @@ Hon. Paula Ingabire and Family
 
 Dr. Diane Karusisi and Family
 
+Hon. Makuza Bernard and Family
+
 Dr. Clet Niyikiza
 
 Dr. Divine Rusa
