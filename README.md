@@ -779,18 +779,16 @@ Late Officer PINA
 
 So-called COVID-19 questionable deaths under the order of a wanted criminal and former military officer in Africa, Several (The list is long).
 
-
 <b>Publius Ovidius Naso: We can learn even from our enemies.</b>
 
 Terrorist and Dictator Paul Kagame
 
 Ange Ndengeyingoma Kagame
 
-
-
 <b> Umutoni Sandra Kagame Paul (Rwandan - Canadian) </b>
 
 Eric U. Cyuma
+
 Hirwa  Viviane
 
-PAGE 2 NEXT
+NEXT PAGE 2 (under dev)
