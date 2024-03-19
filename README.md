@@ -1,5 +1,6 @@
 # RM P1
- 
+ <a href=" https://alainshumbusho.github.io/RM-P1/"> Role Models Page 1 </a>.
+<a href=" https://alainshumbusho.github.io/RM-P2/"> Role Models Page 2 </a>.
 
 <b> Please note: The order in which the names appear has no other significance. </b> 
 
